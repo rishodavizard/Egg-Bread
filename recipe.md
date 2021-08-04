@@ -1,0 +1,1 @@
+First crack 2 eggs and place the yolk and whites in a bowl, then add your spices and seaoning an whisk, after that, soak the bread slice in the egg mixture. Finally cook it in a frying pan o nmedium heat for about 2 minutes on each side of the slice, then plate and enjoy!
